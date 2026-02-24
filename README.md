@@ -14,7 +14,9 @@ self-diagnosed ADHD
 
 PLEASE C+H AND INT, THATS OUR COMF
 
-fictkins: cricket, blixer, orchestraful
+fictkins: cricket, soviet
+
+doubles IWC
 
 <3: G, A, J, A, A, R, F
 
