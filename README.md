@@ -15,7 +15,7 @@
     </td>
     <td width="70%" valign="top">
       <h3>SOME INFO ABOUT ME!</h3>
-      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! i refer to them as voices in my head, and i am only on ponytown if i am in a good headspace. Main interests in my strawpage!
+      <p>DIAGNOSED ADHD and possible P-DID, i do not want to self diagnose! pony i'm using is probably shifted/fronting. interests in strawp!!
     </td>
   </tr>
 </table>
